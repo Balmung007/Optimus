@@ -1,2 +1,2 @@
 # Optimus
-Lets keep moving
+We are here. We are waiting.
